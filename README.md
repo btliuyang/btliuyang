@@ -1,5 +1,5 @@
 - 👋 Hi, I’m liuyang
-- 👀 I’m interested in boll,games,reading
+- 👀 I’m interested in sing,jump,rap，basketball
 - 🌱 I’m currently learning c，ps，ppt
 - 💞️ I’m looking to collaborate on verywhere
 - 📫 How to reach me call me
